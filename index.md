@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Hey there!  Welcome to GitHub Pages
 
 ## This site is under construction, the contents are coming soon!
 
